@@ -1,2 +1,2 @@
 # Regenesis
-Whole sory is about return to more freedom society, in a short words.
+The story is about the return of greater freedom society, briefly told.
